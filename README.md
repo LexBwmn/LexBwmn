@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science and Biology 
 - 🌱 I’m currently learning Computer Science 
 - 💞️ I’m looking to collaborate on projects! 
-- 📫 How to reach me Abowman8556@icloud.com
+- 📫 How to reach me Instagram: Lex_Bwmn 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I enjoy drawing and painting in my spare time! 
 
